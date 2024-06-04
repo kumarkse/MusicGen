@@ -1,1 +1,1 @@
-![image](https://github.com/kumarkse/MusicGen/assets/109473805/cf0904c5-68c4-45a6-a216-99b3f19aa184)
+![image](https://github.com/kumarkse/MusicGen/assets/109473805/f41b7930-22f6-4df6-b67c-45edfd7a35b2)
